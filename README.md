@@ -2,7 +2,7 @@
 
 Use the promo code 100MAX to get started on CSGORoll and claim free cases immediately. You will get three free CSGO cases and a 5% bonus on your first deposit when you use this code as a new user. 
 
-## CSGORoll Promo Codes 2025
+## Latest CSGORoll Promo Codes 2025
  | Platform  | Promo Code | Welcome bonus |
  | ------------- | ------------- | ------------- |
  | Exclusive Welcome Bonus  | 100MAX  | Receive 3 free cases and a 5% bonus |
@@ -26,7 +26,7 @@ If this is your first time using a promo code on CSGORoll, follow these simple s
 
 One of the best promo codes for 2025 is 100MAX, which is perfect for beginners. It makes it simpler to begin playing well-known games like roulette, crash, case wars, and more by providing immediate access to additional cases and a deposit increase. If you use this code, you can play more games for less money up front.
 
-## Latest CSGORoll Promo Codes for 2025
+## List of CSGORoll Promo Codes for 2025
 
 Here are some of the most up-to-date and working promo codes:
 
